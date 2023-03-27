@@ -1,0 +1,4 @@
+Please try to FUCK OFF IF YOU CAN
+
+### ROCK HARD CrYPTO CP VALID
+ 
